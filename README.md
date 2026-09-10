@@ -1,2 +1,0 @@
-# Hatim-fashionz
-Fashionz
